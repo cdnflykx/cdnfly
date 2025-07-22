@@ -1,6 +1,7 @@
 # cdnfly 授权官网价格 无需公司 
 代开授权官网价格+200u 可一直使用
-tg @aixlcc 代安装维护
+tg (https://t.me/cdnflyvip) 代安装维护
+
 
 cdnfly最新版本master v5.8.1
 
